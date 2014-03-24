@@ -1,0 +1,14 @@
+# Eickelman, *The Middle East and Central Asia: an anthropological approach* (4th ed)
+
+> population estimates for Afghanistan in 1968 ranged from 7 to 17 million. No official knew the real figures, but they all recognized that higher figures yielded the prospect of more international aid.
+
+(p 14)
+
+> Roughly 8 percent of Egypt's population is Christian (mostly Coptic), as are 20 percent of Syria's and Iraq's and perhaps 40 percent of Lebanon's. Exact statistics on the size of these minorities are hard to obtain, especially in the case of Lebanon, where no census has been conducted since 1932, in an effort (which largely succeeded until 1975) to preserve a delicate political balance between various ethnic and religious groups---Maronite Christian, Armenian Greek Orthodox, Greek Catholic, Sunnī Muslim, Shīʿī Muslim, Palestinian Christians and Muslims, Druze, and other smaller groups. Elsewhere in the Middle East, there have been thriving Greek and Armenian Christian communities, especially in Egypt and Turkey, although since the beginning of this century their numbers have diminished considerably. The distribution of Jews and Christian populations in the Middle East at the turn of the twentieth century was very different from the distribution of those populations today.
+> 
+> Similarly, in Central Asia, Russian colonization and Soviet policies brought large number of Slavs to the region. In capital cities such as Tashkent (Uzbekistan), Almatay (Kazakhstan), Bisheke (Kyrgyzstan), and Dushanbe (Tajikistan), up to one-third of the population is Russian, although the non-indigenous population has dropped steadily since the dissolution of the Soviet Union in 1991. In Kyzgyzstan, only 20 percent of the industrial workers are Kyrgyz (even less in management and engineering), and in Kazakhstan, only 18 percent of the industrial workers are Kazakh. As was the case in the Middle East at the end of the colonial era, these numbers are rapidly changing as ethnic Russians leave the region. The shifting ethnic balance in Central Asia and elsewhere suggests how complex ethnic and relgiious identities, fears, and opportunities are sustained and articulated in changing economic and political contexts.
+> 
+> Except Israel (where Jews make up roughly 80 percent of the population), most of the countries of the Middle East have always had significant Jewish minorities. Jewish communities have also played a major role in the urban life of Central Asia. Jewish communities contracted in size after the creation of the state of Israel in 1948, the collapse of the colonial regimes of North Africa in the 1950s and 1960s, and, in the east, the Iraqi revolution of 1958. Sizable Jewish minorities remain, however, in Iran, Turkey, Tunisia, and Morocco, although today one is more likely to hear Central Asian Jewish music in Queens, New York, than in Bukhāra or Samarkānd.
+
+(p 16)
+
