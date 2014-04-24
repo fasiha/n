@@ -1,0 +1,12 @@
+kami,god
+daijōsai,Great Rite of Feasting
+shūkyō hōjin,religious juridical persons
+sūkeikai/hōsankai,worshipers' organizations
+chōnaikai,neighborhood associations
+shinden,main sanctuary/kami hall
+haiden,worship hall
+shamusho,shrine office
+hatsumōde,visiting a shrine for New Year
+hatsu miyamairi,first shrine visit of a newborn
+shichi go san,shrine visit to celebrate a child’s third, fifth, or seventh birthday
+norito, solemn prayer intoned by a Shinto priest
